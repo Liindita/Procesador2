@@ -1,1 +1,1 @@
-# Procesador2
+# Procesador2 -- Linda Cordero
